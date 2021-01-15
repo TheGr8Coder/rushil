@@ -1,1 +1,1 @@
-# https://thegr8coder.github.com/rushil
+# https://thegr8coder.github.io/rushil
